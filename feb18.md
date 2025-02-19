@@ -1,4 +1,4 @@
-Febuary 18, 2025 Meeting.
+**Febuary 18, 2025 Meeting**
 
 # Attendence
 - Jacob Almon
